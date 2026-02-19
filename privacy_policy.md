@@ -1,4 +1,4 @@
-# 🔐 Privacy Policy for BringBack - Media Recovery Tool
+# 🔐 Privacy Policy for RecoverX Media – Deleted Media Recovery Pro
 
 **Effective Date:** Feb 1, 2026  
 **Last Updated:** Feb 1, 2026
